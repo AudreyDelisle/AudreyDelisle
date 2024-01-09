@@ -5,4 +5,3 @@
 - 📫 How to reach me: https://www.linkedin.com/in/audreydelisle/
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I like to do visual arts
--->
